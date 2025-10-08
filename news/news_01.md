@@ -1,7 +1,6 @@
 # A divided Israel marks 2 years since Oct. 7 attack as war in Gaza grinds on and hostages languish
 
-By ALON BERNSTEIN
-
+By ALON BERNSTEIN  
 Updated 10:41 AM GMT+8, October 7, 2025
 
 REIM, Israel (AP) — Israelis prepared to mourn the dead Tuesday as the nation marks two years since [Hamas’ Oct. 7 attack](https://apnews.com/hub/israel-hamas-war) plunged the region into a devastating war, while Israel and Hamas hold indirect talks in Egypt.
